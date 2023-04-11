@@ -1,1 +1,1 @@
-Soy Rodrigo Melendez un programador Jr el cual quisiera aprender muchos otros tips para mejorar al encontrar errores en los codigos y optimizar el mismo codigo.
+Soy Rodrigo Melendez un programador Jr el cual quisiera aprender muchos otros tips para mejorar al encontrar errores en los codigos y optimizar el mismo codigo.cd
